@@ -52,7 +52,8 @@ You can use all the premium features like Face Animator, AI Avatar, Portrait, Pa
 
 You can’t restore any image after completing the improvement without seeing ads in the free app Remini online. Sometimes, you accidentally click on ads and are redirected to a different interface. If you are unfamiliar with ads, you can download the new version of the Remini mod APK. It will allow you to restore the photos without interruption by ads. This feature will save you time and energy.
 
-![Remini-MOD-APK-Latest-version-Do](https://github.com/user-attachments/assets/2da2e0a1-2f17-4180-8060-0f33dcbd1b1a)
+![1769780912897130499](https://github.com/user-attachments/assets/f9f0c8b6-1a1d-4a76-aacd-a858f38c451d)
+
 
 ### Full Unlocked
 
